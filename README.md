@@ -1,1 +1,0 @@
-# Trans-2-6-dimetilmorfolinahooptl
